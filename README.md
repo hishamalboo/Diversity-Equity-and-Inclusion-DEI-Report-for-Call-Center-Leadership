@@ -27,6 +27,12 @@ equity, and inclusion (DEI) across the organization.
 
 
 
+<img width="1399" height="748" alt="image" src="https://github.com/user-attachments/assets/20667ff2-edff-4b60-82d2-58d00255643b" />
+
+
+
+
+
 
 <img width="1415" height="540" alt="image" src="https://github.com/user-attachments/assets/28c7779a-f655-4223-be66-0ea1d0b6f29e" />
 
