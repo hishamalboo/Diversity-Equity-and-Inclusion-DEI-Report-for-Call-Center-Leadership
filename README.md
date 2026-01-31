@@ -26,7 +26,12 @@ specific needs of neurodivergent employees and promoting a culture of diversity,
 equity, and inclusion (DEI) across the organization.
 
 
+
+
 <img width="1084" height="581" alt="image" src="https://github.com/user-attachments/assets/3a304a56-5902-4844-aea4-c5de1a3a3d17" />
+
+
+
 
 
 
